@@ -1,0 +1,2 @@
+# Segitigabolakbalik
+SEGITIGA BINTANG BOLAK BALIK 
